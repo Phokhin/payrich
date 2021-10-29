@@ -1,1 +1,0 @@
-# payrich.github.io
